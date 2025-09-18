@@ -13,7 +13,7 @@
 - 👯 I’m looking to collaborate on **educational projects & open-source contributions**  
 - 💬 Ask me about **Motivation, Life Lessons, Storytelling, Sanatan Dharma, Science & Tech Tools**  
 - 📫 How to reach me: **souravsaha120@gmail.com**  
-- ⚡ Fun fact: I mix **MOdern Problem with Ancient Solutions** to explain life & the universe 🌌  
+- ⚡ Fun fact: I mix **Modern Problem with Ancient Solutions** to explain life & the universe 🌌  
 
 ---
 
